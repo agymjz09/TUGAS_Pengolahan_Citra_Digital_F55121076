@@ -1,0 +1,1 @@
+# TUGAS_Pengolahan_Citra_Digital_F55121076
